@@ -1,1 +1,1 @@
-# kazaksa.turlendyru
+## aqparat olshemderyn kazaksa.turlendyru
