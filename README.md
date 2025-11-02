@@ -1,0 +1,1 @@
+# kazaksa.turlendyru
